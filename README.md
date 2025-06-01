@@ -1,0 +1,1 @@
+# kuruyemi-y-netimsitemi
